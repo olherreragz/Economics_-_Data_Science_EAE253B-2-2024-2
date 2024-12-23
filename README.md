@@ -9,3 +9,5 @@ Ayudantías disponibles en YouTube!
 - Link Ayudantía 5:
   - [Ayudantía 5](https://www.youtube.com/watch?v=Z18lNqiq4FE)
 
+Tip: Se recomienda ver las ayudantías en x2!
+
